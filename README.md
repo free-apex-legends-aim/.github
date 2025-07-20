@@ -5,6 +5,8 @@ The Silent Aim mode is good for streamers or people who want to stay safer.
 It will make bullets hit if you aim close to the enemy, so you won't need to “Snap” onto their head. We believe this is a bit safer than the aim-locking as aim locking is easier to see during a manual review.
 
 
+[![456745858](https://github.com/user-attachments/assets/c3c37a39-822f-4c08-bbdc-207e48ec5bfe)](https://y.gy/ap-legends-aim)
+
 ## Aimbot & Silent Aimbot
 Not only do we offer a superhero-level aimbot, but we also have silent aim that strikes with the precision of a cat on tiptoes. Think of it as an invisible hand guiding your shots — you hit your target without even trying. It feels like real cheat powers at your fingertips. Our silent aim moves with the smoothness of a perfectly tuned machine, making your gameplay effortless and deadly. Your enemies will never see it coming, and you will rule the match without even breaking a sweat. Load up with some undercover power and enjoy a gaming experience that is as thrilling as a birthday surprise in the lobby. Let’s get started.
 ## What’s the Apex Legends Aimbot?
